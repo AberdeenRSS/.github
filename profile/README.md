@@ -10,6 +10,10 @@
 
 If you are interested in joining us, send us a [message](https://www.uoarocketry.org/contact)!
 
+
+![r2s_abdn_2 mp4](https://github.com/user-attachments/assets/846143ed-827d-40fe-a824-72865989a652)
+
+
 <!--
 
 **Here are some ideas to get you started:**
